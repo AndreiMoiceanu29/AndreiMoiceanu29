@@ -1,4 +1,4 @@
-### Hi there 👋
+As the CEO of Business2Point I have managed to drive a company that was just made from it's founders to a successful company in it's region, delivering high quality software, inovative solutions and keeping a top position in our regional rankings. Looking for getting your business to the next level ? My team will provide you with the right software that you need
 
 <!--
 **AndreiMoiceanu29/AndreiMoiceanu29** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
